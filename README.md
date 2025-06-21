@@ -1,0 +1,1 @@
+# thedatasociet-exercicies
